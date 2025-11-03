@@ -31,3 +31,8 @@ I believe in learning by doing — gaining real-world experience while contribut
 
 I aim to develop my career in **business management, human resources, and sales** while continuing to learn from every challenge.  
 I’m motivated by opportunities that support **growth, collaboration, and community improvement** — because I believe successful businesses start with good people.  
+## 📫 Get in Touch
+
+💌 Email: [lyahrotong28@gmail.com]  
+💼 LinkedIn: [your LinkedIn profile link]  
+💻 GitHub: [King-notch.github.io]  
