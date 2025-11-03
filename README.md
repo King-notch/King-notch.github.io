@@ -34,5 +34,5 @@ I’m motivated by opportunities that support **growth, collaboration, and commu
 ## 📫 Get in Touch
 
 💌 Email: [lyahrotong28@gmail.com]  
-💼 LinkedIn: [your LinkedIn profile link]  
+💼 LinkedIn: [https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3B8RXwh1rTQ1G6Gx1XpWimjw%3D%3D]  
 💻 GitHub: [King-notch.github.io]  
