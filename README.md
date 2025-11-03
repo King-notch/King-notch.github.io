@@ -19,11 +19,15 @@ I believe in learning by doing — gaining real-world experience while contribut
   *Mon National College*  
   - Elective: *Community Leadership Management*  
   - Focus: social development, leadership, and community engagement
-
+  - 
 ## 🧠 Skills & Strengths
-
 - 🤝 Strong **communication** and **teamwork** abilities  
 - 👥 Experience in **people management** and **organization**  
 - 💻 **Basic computing skills** (MS Office, online tools, etc.)  
 - 🌱 **Community engagement:** taught and collaborated for 3 months with local leaders to promote fair policies among organizations  
-- 💪 **Resilient and calm under pressure** — patient, kind, and focused on solutions  
+- 💪 **Resilient and calm under pressure** — patient, kind, and focused on solutions
+   
+## 🎯 Goals
+
+I aim to develop my career in **business management, human resources, and sales** while continuing to learn from every challenge.  
+I’m motivated by opportunities that support **growth, collaboration, and community improvement** — because I believe successful businesses start with good people.  
