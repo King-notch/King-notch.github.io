@@ -1,3 +1,5 @@
+<img src="https://github.com/King-notch/King-notch.github.io/blob/main/b630e5ff-6df6-4932-93ac-80bfb98c8216.jpg" alt="THAW Photo" align="right" width="30%"/>
+
 # _Wein Thaw Zan_
 > _International Student_<br />
 > Payap University, Department of International Business Management<br />
